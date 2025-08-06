@@ -10,7 +10,7 @@ Here are some ideas to get you started: -->
 
 👩‍💻 To a career in tech!
 
-🌻 I'm a proud She Codes Alumni and deeply grateful for the incredible community and support throughout the Plus program.
+🌻 I'm a proud She Codes Plus Alumni and deeply grateful for the incredible community and support throughout the Plus program.
 
 💫 I absolutely loved learning alongside inspiring women and allies, and I hope to give back by continuing to mentor and contribute wherever I can.
 
